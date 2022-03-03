@@ -1,0 +1,1 @@
+# eicar.in.a.rar.test
